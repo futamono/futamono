@@ -21,7 +21,7 @@
 <a href="https://moldyspores.atabook.org/">ata</a> , <a href="https://rentry.co/moistboyz">urls</a> , <a href="https://moriouh.straw.page">straw</a> , <a href="https://rentry.co/passengr">rentry</a> , <a href="https://fluffle.cc/acto3">rentry2</a> , <a href="https://guns.lol/pinkdarkboy">guns</a>
 
 <h6 align="center">
-  $$\color{#4F8F7F} 𝙈𝙪𝙩𝙩 $$ $$\color{#BCBF82} or $$ $$\color{#4F8F7F} Randy $$ $$\color{#4F8F7F} / 
+  $$\color{#4F8F7F} 𝙈𝙪𝙩𝙩 $$ $$\color{#BCBF82} or $$ $$\color{#4F8F7F} Randy $$ $$\color{#4F8F7F} ╱ $$ $$\color{#BCBF82} 𝙂𝙧𝙖𝙝𝙖𝙢
   <h6 align="center">
 $$\color{#4F8F7F} fixated $$ $$\color{#BCBF82} on $$ $$\color{#4F8F7F} horror $$ $$\color{#BCBF82} and  $$ $$\color{#4F8F7F} kyle $$ $$\color{#BCBF82}  gallner $$
 
