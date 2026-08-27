@@ -23,5 +23,5 @@
 <h6 align="center">
   $$\color{#4F8F7F} 𝙈𝙪𝙩𝙩 $$ $$\color{#BCBF82} or $$ $$\color{#4F8F7F} Randy $$ $$\color{#4F8F7F} ノ $$ $$\color{#BCBF82} 𝙂𝙧𝙖𝙝𝙖𝙢 $$
   <h6 align="center">
-$$\color{#4F8F7F} fixated $$ $$\color{#BCBF82} on $$ $$\color{#4F8F7F} horror $$ $$\color{#BCBF82} and  $$ $$\color{#4F8F7F} kyle $$ $$\color{#BCBF82}  gallner $$
+$$\color{#4F8F7F} fixated $$ $$\color{#BCBF82} on $$ $$\color{#4F8F7F} horror $$ $$\color{#BCBF82} and  $$ $$\color{#4F8F7F} Hannibal $$ 
 
