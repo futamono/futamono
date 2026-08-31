@@ -1,7 +1,7 @@
 
 <h6 align="center">
 
-![profileviews](https://komarev.com/ghpvc/?username=Welcome2Paradise&label=stalkers&color=313D4B) 
+![profileviews](https://komarev.com/ghpvc/?username=Welcome2Paradise&label=stalkers&color=4C6D6B) 
 
 <h6 align="center">
 
@@ -22,7 +22,7 @@
 <a href="https://moldyspores.atabook.org/">ata</a> , <a href="https://rentry.co/moistboyz">urls</a> , <a href="https://moriouh.straw.page">straw</a> , <a href="https://rentry.co/passengr">rentry</a> , <a href="https://fluffle.cc/acto3">rentry2</a> , <a href="https://guns.lol/pinkdarkboy">guns</a>
 
 <h6 align="center">
-  $$\color{#313D4B} 𝙈𝙪𝙩𝙩 $$ $$\color{#C5C69E} or $$ $$\color{#313D4B} 𝙂𝙧𝙖𝙝𝙖𝙢 $$ 
+  $$\color{#4C6D6B} 𝙈𝙪𝙩𝙩 $$ $$\color{#BFC090} or $$ $$\color{#4C6D6B} 𝙂𝙧𝙖𝙝𝙖𝙢 $$ 
   <h6 align="center">
-$$\color{#313D4B} fixated $$ $$\color{#C5C69E} on $$ $$\color{#313D4B} horror $$ $$\color{#C5C69E} and  $$ $$\color{#313D4B} Hannibal $$ 
+$$\color{#4C6D6B} fixated $$ $$\color{#BFC090} on $$ $$\color{#4C6D6B} horror $$ $$\color{#BFC090} and  $$ $$\color{#4C6D6B} Hannibal $$ 
 
