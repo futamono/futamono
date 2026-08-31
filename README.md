@@ -8,7 +8,7 @@
 
 <h6 align="center">
 
-<img width="1280" height="719" alt="awhug-compressed (1)" src="https://github.com/user-attachments/assets/9404d980-c1bd-4ab7-ba84-5e17207682f3" />
+<img width="1280" height="719" alt="Image" src="https://github.com/user-attachments/assets/9f367c76-5fa8-42cf-b106-e51b774b0a3b" />
 
 <img src="https://files.catbox.moe/ci5q40.png" width="50" /> <img src="https://files.catbox.moe/san3ns.png" width="50" />
 
