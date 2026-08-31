@@ -8,7 +8,7 @@
 
 <h6 align="center">
 
-<img width="1280" height="719" alt="Image" src="https://github.com/user-attachments/assets/9f367c76-5fa8-42cf-b106-e51b774b0a3b" />
+<img src="https://files.catbox.moe/i9ywy7.gif" width="770" />
 
 <img src="https://files.catbox.moe/ci5q40.png" width="50" /> <img src="https://files.catbox.moe/san3ns.png" width="50" />
 
