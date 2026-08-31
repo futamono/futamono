@@ -1,3 +1,4 @@
+
 <h6 align="center">
 
 ![profileviews](https://komarev.com/ghpvc/?username=Welcome2Paradise&label=stalkers&color=4F8F7F) 
@@ -7,7 +8,7 @@
 
 <h6 align="center">
 
-<img src="https://files.catbox.moe/oahnaq.gif" width="770" />
+<img width="1280" height="719" alt="awhug-compressed (1)" src="https://github.com/user-attachments/assets/9404d980-c1bd-4ab7-ba84-5e17207682f3" />
 
 <img src="https://files.catbox.moe/ci5q40.png" width="50" /> <img src="https://files.catbox.moe/san3ns.png" width="50" />
 
